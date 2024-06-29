@@ -1,1 +1,1 @@
-Xiaohe, or matthew, a junior in Pekin University.
+Now studying in Pekin University.
